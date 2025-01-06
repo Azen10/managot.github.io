@@ -1,1 +1,1 @@
-# managot..github.io
+# managot.github.io
